@@ -1,0 +1,19 @@
++++
+title = "Old Age"
+date = 2009-07-29T19:01:00Z
+updated = 2015-05-10T15:52:19Z
+tags = ["About Me"]
+blogimport = true 
++++
+
+  
+
+A strange thing has happened to me in [my ripe, “old” age](http://lifeatthecircus.com/2009/07/16/its-her-birthday-celebration/).&#160; Since [turning thirty](http://lifeatthecircus.com/2009/07/17/on-turning-30/) I have discovered my taste buds are changing quite a bit.&#160; 
+
+[![image](http://tbn0.google.com/images?q=tbn:DiE4aXKCPP95NM:http://www.businesspundit.com/wp-content/uploads/2009/05/zzcoffee.jpg)](http://images.google.com/imgres?imgurl=http://www.businesspundit.com/wp-content/uploads/2009/05/zzcoffee.jpg&amp;imgrefurl=http://www.businesspundit.com/coffee-sugar-prices-spike-due-to-shortages/&amp;usg=__lt5_3ZXQN4jcd1mYAtRf1ANMD8g=&amp;h=346&amp;w=347&amp;sz=76&amp;hl=en&amp;start=1&amp;um=1&amp;tbnid=DiE4aXKCPP95NM:&amp;tbnh=120&amp;tbnw=120&amp;prev=/images%3Fq%3Dcoffee%26hl%3Den%26client%3Dfirefox-a%26rls%3Dorg.mozilla:en-US:official%26sa%3DN%26um%3D1)For years I have loved the smell of coffee.&#160; And while I do enjoy a cappuccino or especially a good frappuchino, an actual cup of coffee was too strong for my liking.&#160; However, I enjoyed the smell so much, I once begged my husband to drink it in the morning, just so we could fill our home with its rich aroma.&#160; He denied my request to become addicted to caffeine for no reason other than to please his wife’s olfactory nerves. 
+
+But recently, I have noticed that I have acquired a newfound liking to the cup of joe (with cream and sugar mind you).&#160; I bought a bag of coffee beans this week and hope to figure out how to use our coffee maker so I can start my day with the sweet smell of hazelnut coffee brewing in our kitchen.&#160; Funny, how I made it through 4 years of college, 3 years of teaching, and 3 newborn babies without it, but within weeks of hitting the big 3-0 I’ve turned to the dark side.&#160; 
+
+More startling than my appreciation for coffee, is my recent discovery of a [![image](http://tbn1.google.com/images?q=tbn:UV-RKB56qLZ3uM:http://i106.photobucket.com/albums/m257/ASXL41/CherryCokeZero.jpg)](http://images.google.com/imgres?imgurl=http://i106.photobucket.com/albums/m257/ASXL41/CherryCokeZero.jpg&amp;imgrefurl=http://troyhochstetler.wordpress.com/page/19/&amp;usg=__kMX69Ec-efud5r9SU0e8ihJiSnI=&amp;h=300&amp;w=199&amp;sz=17&amp;hl=en&amp;start=3&amp;tbnid=UV-RKB56qLZ3uM:&amp;tbnh=116&amp;tbnw=77&amp;prev=/images%3Fq%3Dcherry%2Bcoke%2Bzero%26gbv%3D2%26hl%3Den)diet soft drink that I have found acceptable to the palate.&#160; I am a [coke snob](http://lifeatthecircus.com/2008/08/06/talkin-bout-the-real-thing/).&#160; And I wouldn’t touch diet soda if it was the last soda on earth.&#160; But last week I went to visit Scott at work and asked him to bring me out a soda.&#160; All they had was a diet coke with lime and a cherry coke zero.&#160; I wrinkled my nose in disgust.&#160; No way was I touching the diet coke, but I left the cherry coke zero sitting on the picnic table.&#160; (see I told you I was a snob).&#160; I thought about it.&#160; My mouth was dry and so I figured, what the heck.&#160; I closed my eyes and took a sip, much like I was attempting to get down cough medicine.&#160; It wasn’t bad.&#160; I drank some more.&#160; Hmmm… can’t really tell much of a difference.&#160; I must confess it took me several more sips before I was willing to admit to Scott that it didn’t taste different to me than regular cherry coke.&#160;&#160; He was in shock!&#160; I have to confess I haven’t tried one since, b/c we still have regulars in our pantry.&#160; But, the next time I need to buy more coke, I intend to purchase a case of cherry coke zero.&#160; 
+
+I’ve been thirty for 2 weeks now and I’ve added diet soda and coffee to my grocery list… what’s next?

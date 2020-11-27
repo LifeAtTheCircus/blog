@@ -1,0 +1,23 @@
++++
+title = "We did it!!"
+date = 2008-08-25T07:12:00Z
+updated = 2015-05-10T15:50:13Z
+tags = ["Goals"]
+blogimport = true 
++++
+
+ Sorry for not posting a post race synopsis yesterday, in the words of my dear [sister in law](http://anotherstelladay.blogspot.com/2008/08/too-tired.html), I was "too tired." 
+
+[![IMG_7187](https://latc.s3.amazonaws.com/wp-content/uploads/2008/08/img-7187-thumb.jpg)](https://latc.s3.amazonaws.com/wp-content/uploads/2008/08/img-7187.jpg) The race was a blast!  The weather was gorgeous and the views were beautiful.  My favorite was running down Main Street in Annapolis looking down at the harbor.  It was incredible!   The first 5 miles I felt great.  I kept up a steady conversation with Karen and at each mile marker would scream out with glee.  
+
+[![IMG_7200](https://latc.s3.amazonaws.com/wp-content/uploads/2008/08/img-7200-thumb.jpg)](https://latc.s3.amazonaws.com/wp-content/uploads/2008/08/img-7200.jpg)I was really impressed with the support from the people of Annapolis.  People would stand at their driveways with hoses to mist you, music blaring to inspire you, and some even offered drinks, and high fives.  Our favorite was the people that handed out orange slices.  These people were so gracious and kind to offer such encouragement to 5000 strangers, it blew me away.    Of course the best sight I saw on the run was my dear family cheering us on!  They were there at the start, shortly after mile 1 and 3, and were there at the finish as well.  They totally brought a smile to my face.  
+
+I will tell you that from mile 5-7 I was struggling.  I ran, but there was much less enthusiasm.  However, after mile 8, I felt like I got a second wind.  I was exhilarated as I was running farther than I had ever run before and I was also super psyched because I knew we were going to do it.  The race regulations said that at mile 8 they would have you stop if you were running at slower than a 12 minute mile pace.  I was nervous about this as I did not train all summer to not be able to complete the race.  Plus, I wanted to get [the jacket](http://annapolisstriders.org/2008premium.html) which was the finisher's premium, and you didn't get it unless you finished the race.   Once we passed mile 8 and knew we were at a fast enough pace, I got goose bumps.  We were doing it!!  We were going to finish the race.  I told Karen, "This is literally a dream come true."  I was thrilled!! 
+
+[![20080824 Annapolis 10 Miler 6x4 - 7](https://latc.s3.amazonaws.com/wp-content/uploads/2008/08/20080824-annapolis-10-miler-6x4-7-thumb.jpg)](https://latc.s3.amazonaws.com/wp-content/uploads/2008/08/20080824-annapolis-10-miler-6x4-7.jpg) As we came to the finish, which was at the top of a hill (not so nice race committee) I saw the clock at just under 2 hours.  I so wanted to finish in under two hours, we pushed each other along and Karen, my Dad in law, and I finished in just under the 2 hour mark.   My good friends  J&amp;J finished about 10 minutes ahead of us.  They were at the finish line cheering us over!  It was so fun to run with a group, spurring each other on with encouragement and support!  
+
+[![20080824 Annapolis 10 Miler 6x4 - 5](https://latc.s3.amazonaws.com/wp-content/uploads/2008/08/20080824-annapolis-10-miler-6x4-5-thumb.jpg)](https://latc.s3.amazonaws.com/wp-content/uploads/2008/08/20080824-annapolis-10-miler-6x4-5.jpg) After we finished I remembered that technically we didn't cross the starting line until 6 minutes after the start (there were 5000 people there so when the horn blasted it still took awhile before we all got across the line)  so actually our finishing time was **1 hour and 53 minutes and 44 seconds!  We did it!!!!**
+
+**** 
+
+[![IMG_7230](https://latc.s3.amazonaws.com/wp-content/uploads/2008/08/img-7230-thumb.jpg)](https://latc.s3.amazonaws.com/wp-content/uploads/2008/08/img-7230.jpg)This morning, I am quite sore, but really, very excited.  When the summer began the farthest I had ever run was a 5K and that was  in October of 2006.  I hadn't done any running since then.   Now, I have plans of running with a local running club on week day mornings as a regular part of my schedule and I've already registered for a 1/2 Marathon in Baltimore this fall.    I am incredibly thankful for my wonderfully supportive hubby and children without whom this would not even be possible.  They give me cool drinks and loud cheers each time I return from a run.  Scott willingly adjusts his work schedule to accommodate my running and happily [takes care of the children](http://lifeatthecircus.com/2008/08/12/how-daddy-entertains-the-kids/) so I can train.  I honestly couldn't have done this without them.  

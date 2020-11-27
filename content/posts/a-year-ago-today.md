@@ -1,0 +1,21 @@
++++
+title = "A Year Ago Today…"
+date = 2009-03-27T00:53:00Z
+updated = 2015-05-10T15:51:59Z
+tags = ["About Me"]
+blogimport = true 
++++
+
+One year ago today I entered into this crazy blogging world.&#160; [My initial post](http://lifeatthecircus.com/2008/03/27/here-we-go/) was very short and my commenter's were only IRL friends and family.&#160; For awhile I only received comments from my mom, my mother in law or one of my two sisters in law.&#160; 
+
+Now I have by no means “made it” in the blogging world.&#160; If anything, I have learned that there are a gazillion mommy bloggers out there with cute kids and tales to share.&#160; What makes some rise to the top with hundreds of commenter's and thousands in their RSS feed?&#160; I do not know.&#160;&#160; But, I do not measure my success in the numbers of people reading and responding to my thoughts each day.&#160; I love blogging and even though I only have a scattering of faithful readers each day, I still consider it a worthwhile investment of my time.&#160; And the reason is for those of you with whom I have formed a “real” relationship.&#160; A year ago today I had no idea that I would make true friends through this blogging world.&#160; No idea that I would rekindle relationships with people I had lost contact with years ago. I had no idea I would find myself earnestly praying for, rejoicing with, and caring genuinely about these ladies whom I have never seen face to face.&#160; 
+
+This year has been a huge blessing to me.&#160; I discovered a love for writing that I didn’t realize was there and an outlet I didn’t realize I needed.&#160; I’ve been given an avenue to preserve my children’s antics that doesn’t feel like homework and which later I will be able to look back on and recall fondly this stage in our life.&#160; 
+
+Blogging has become a common word in the circus family’s vocabulary.&#160; My son or daughter will laugh about something and then ask if I will “put that on my blog.”&#160; My husband has been more than supportive of this new endeavor and the time it takes me each day to invest in it and in the lives of people I meet through it.&#160; He daily reads my posts and checks my comments.&#160; The past two weeks he has spent way, way more time working on my blog than I have.&#160; He’s been coming home from a long day at work, helping me put the kids to bed and then sitting at the dining room table, learning CSS and other codes and languages which I don’t understand in order to design for me the blog of my dreams.&#160;&#160;&#160; We’ve had to Tivo two weeks worth of our favorite shows b/c every night it’s been nothing but the blog.&#160; I’m embarrassed to admit that on more than one night I went to bed before him as he stayed up until the morning adjusting this color or that line, to make it come out the way we envisioned.&#160; Thanks honey, I love you too!&#160; More than you could ever know!!&#160; 
+
+So, a year of blogging has shown me that while blogging does take a good deal of time, it is also a lot of fun.&#160; I still absolutely love every comment I get.&#160; I love the interaction.&#160; The only thing better would be to sit and chat face to face with my readers, maybe over a cup of coffee.&#160; While I can’t make that work, I can at least offer one of my ![image](http://tbn0.google.com/images?q=tbn:wrxsFyVcQWHLlM:http://www.thegimcrackmiscellany.com/wp-content/uploads/2008/09/frappuccino1.jpg)lucky readers a frappuchino on me!&#160; That’s right, in honor of my one year blogoversary and the friendships I have made through this endeavor, I am giving away a $10 Starbucks gift card.&#160; Perhaps it will encourage some of my “lurkers” to come out of the woodwork and say hello.&#160; I’d 
+love
+ to meet you and get to know you better.&#160; All you have to do to enter, is leave a comment below.&#160;&#160; To increase your chance of winning, you can subscribe to my RSS feed and or follow me on twitter&#160; (you can’t miss the links on my supper cool new blog design :-).&#160; Just leave a separate comment letting me know that you did so.&#160; I’ll announce the lucky winner on Monday and include all comments received before 1:00pm EST Monday in the drawing.&#160;&#160; 
+
+I can’t wait to hear from you!

@@ -1,0 +1,13 @@
++++
+title = "It's the Begining of the End"
+date = 2008-05-08T20:00:00Z
+updated = 2015-05-10T15:49:21Z
+tags = ["Motherhood"]
+blogimport = true 
++++
+
+[![books1](https://latc.s3.amazonaws.com/wp-content/uploads/2008/05/books1-150x102.jpg "books1")](https://latc.s3.amazonaws.com/wp-content/uploads/2008/05/books1.jpg)My kids and I have truly enjoyed our local library.  We go to to story time, baby story time, special events, and we go just to check out books.  The kids LOVE it!  It's a happy place, a fun place, a place where a kid can be a kid... until today.  
+
+I took the kids to the library earlier this week to pick out books.  I know my kids can be loud.  Sometimes my sons talks at a volume level that is literally shouting.  My baby has a cry so shrill sometimes I look for shattered glass... but I promise, this time we weren't being that loud... really.  I was sitting on the floor with the baby while my older two were picking books off the shelf.  The library was pretty empty.  I think mine were the only kids there.  It was a beautiful sunny morning.  Only 2 or 3 adults were there perusing the shelves.  We weren't whispering.  I didn't think it was necessary b/c we weren't that loud and I didn't see anyone we were interrupting.  A librarian was in the aisle behind ours.  She came around.  At first she seemed nice... asking if we needed any help, commenting on their negotiation attempts (I said they could get one book each, they pleaded for two).  I was polite.  Then she said in this annoyingly nice and patronizing tone, "You know they are the right age to teach them to use inside voices."  (UGH!  As I type this I am still filled with annoyance.  I don't know why... perhaps it was the way she said it... if she had just said, "Could you have them be quieter," I wouldn't have had a problem).  I responded with a "OK sorry about that."  And then she said, "We have tissues at the counter."  (The baby had a slight runny nose, it wasn't running all over the place, I promise)!  Again, it was the patronizing voice that was so utterly annoying.  
+
+While the kids didn't seem to notice a problem, the library had been ruined for me.  I used to feel comfortable here.  It was a fun, easy, place where I could take the kids, plop on the floor read a book or two and we all left happy.   I didn't let the kids run helter skelter throughout the building tossing books onto the floor.  But I didn't shush them when they excitedly called out, "Hey Mom, can we get this book?"   Now it will be one of those places were I feel like we have to be on our BEST behavior... noses wiped, shoes on, voices whispering...

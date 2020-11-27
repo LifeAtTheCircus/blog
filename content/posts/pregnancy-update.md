@@ -1,0 +1,25 @@
++++
+title = "Pregnancy Update"
+date = 2009-11-10T10:48:00Z
+updated = 2015-05-11T21:45:20Z
+tags = ["Motherhood"]
+blogimport = true 
++++
+
+Many of you have asked for the details on my pregnancy.&#160; Some you will just have to infer for yourself as this is a family friendly blog&#160; :-) But, as for the rest….I am around 11 weeks pregnant.&#160; According to a site I read online that gives me the update each week, this week my baby gets his/her irises and finger nails and he or she weighs in a whopping 7 grams!
+
+When I was pregnant with my son, I told my third grade class when I was around 9 weeks.&#160; Because it was my first child and I was good at keeping things quiet for a whole two days.&#160; I remember telling my third graders and their response was, “I thought you looked pregnant.”&#160; (Hello kiddos, the baby is a size of a grape, there is no way I look pregnant)&#160; They then preceded to move their desks farther apart in case I needed more room to fit through the aisle.&#160; 
+
+When we told our children there was a baby in Mommy’s belly, they kind of laughed at first and didn’t believe us.&#160; “No way, there couldn’t be a baby in there!”&#160; My 3 year old said, “Mom, I think it is just food.”&#160; We then explained that the baby is the size of a grape and so it doesn’t look like there is right now, but really there is.&#160; (I love my children… kind, smart, SENSITIVE little ones that they are….truly wise beyond their years!)
+
+The kids are so excited.&#160; My two year old will ask me every day, multiple times a day, “Mommy, is there still a baby in your belly?”&#160; My middle child is so eager to mother and care for a real baby.&#160; She told me, “Mom, I don’t think we talk about the baby enough.&#160; I think we should talk about the baby all the time.&#160; I think we need to get the car seat in the van and the toys for the baby down from the attic.”&#160; My son said right away, “Well, it will be a LONG time before we find out if we have a boy or a girl.”&#160; 
+
+Which brings me to the next,most commonly asked question…. Will we be finding out what we’re having?&#160; We chose to wait and be surprised with the other three and LOVED, LOVED that element of surprise.&#160; Yes,&#160; by the end we were really curious, and very eager, but it was so fun to wait, and then for me to hear Scott exclaim “Crystal, It’s a boy… It’s a girl… It’s a girl.”&#160; But, I thought for sure if we had a fourth, that we’d find out.&#160; It seems easier, ya know.&#160; And besides my son has his heart set on a baby brother.&#160; He is actually fully convinced it will be a boy b/c in his words, “God just wouldn’t give me three sisters to take care of.&#160; He knows I’d need help.&#160; I am sure God will give me a brother to help me take care of the girls.”&#160;&#160; I thought we’d have to find out so we could prepare him.&#160; But, Scott really doesn’t want to find out.&#160; He loves that element of surprise and is convinced that our son will adjust and do fine and it&#160; might even be easy to adjust when he can see his sister or brother right when he finds out.&#160; So, while nothing is definitive, it looks like we’re going to be surprised with this one too.&#160; 
+
+How do I feel?&#160; **
+Tired
+**.&#160; You may have noticed my blogs haven’t been updated first thing in the morning every day like before… Yea, I am pretty much in bed by 10pm every night.&#160; It’s actually all I can do to stay up till 10.&#160; And&#160; I am behind on laundry and house cleaning b/c I haven’t really been all that productive these days.&#160; Homeschooling, taking care of three kiddos, and carrying a fourth, seems to tucker me out.&#160; But, I am looking forward to that second trimester energy boost (right in time for the holidays) when I hope to once again stay up late with my hubby and stay on top of the house work.&#160; I am grateful that I haven’t been sick.&#160; I never got morning sickness with any of my kids.&#160;&#160; I have felt queasy and nauseous at times, especially if my stomach is too empty.&#160; But compared to my friends who truly suffered morning sickness, I’d say no… I feel fine!
+
+I’ve already started getting the raised eyebrows and crazy looks from strangers.&#160; I went in for a flu shot with the three kids last week at the CVS minute clinic.&#160; The tech said, “Mom, any chance your pregnant?”&#160; Yes, I said.&#160; The look on her face was priceless.&#160; You’d have thought I said I was from Mars.&#160; Wow she said, “You must like kids, huh?”&#160; When I told my dermatologist I was pregnant she asked if it was my first.&#160; “Umm…no, fourth!”&#160; There went the eyes again and she asked if I was ready.&#160; _Hope so, no turning back now._&#160;&#160; The OB nurse just said, “Well, I guess you know about being pregnant as I stepped on the scale for my first visit.&#160; _Yes, yes I do._ 
+
+So, I guess that’s the up date on being preggo at the circus!&#160; So far, so good.&#160; Looking forward to hearing the heart beat for the first time next week and to seeing his or her face in another month or two at my first sonogram!

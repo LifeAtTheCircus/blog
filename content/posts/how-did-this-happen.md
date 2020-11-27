@@ -1,0 +1,13 @@
++++
+title = "How did this happen??"
+date = 2008-04-24T20:03:00Z
+updated = 2015-05-10T15:49:16Z
+tags = ["About Me"]
+blogimport = true 
++++
+
+I fear I have become a gadget person.  I don't know how or when it happened, but recently I have noticed the signs.  Two weeks ago when on my date night with hubby, we had some extra time after [our Toys R Us date](http://lifeatthecircus.com/2008/04/12/we-need-to-get-out-more/), so I asked if we could run in the mall to look at the new iphone at the apple store.  Yes, you read that correctly.  I asked my husband if we could go look at technological equipment that I knew we couldn't afford and weren't going to buy, just b/c I wanted to play with one.  This is not good.
+
+![image](http://tbn0.google.com/images?q=tbn:VHARC5_HpmB93M:http://www.37signals.com/svn/images/iphone-contextconsistency.png)
+
+My fascination with the iphone started last month when I saw my husband's cousin's itouch.  He was showing us how you can scroll through pictures and albumn covers and even zoom in and out just by using your fingers.   Prior to this I have been totally against PDA's.  I have prided myself on the fact that I keep a mental calendar.  Ask me when Flag Day is, I can tell you.  When is the first day of summer, got that too.  Hey honey, what are we doing on the 21st of next month... "ah let me see, that is a Wed... you have a sailing race.."  When my husband got a used $40 PDA a few years ago, just for fun, I rolled my eyes and complained.  "Why do you need a PDA when you have me?"  Eventually he stopped using it b/c the battery didn't work right and he kept losing the info and having to rely on yours truly.  But this itouch, this is different.   They lulled me in with the pictures.  In case you haven't picked up on it yet, I LOVE taking pictures of my kids.   I've got them scrolling through on my screen saver, and digital picture frame, in addition to lining the walls of my hallway.  The iphone would allow me to carry around GIGS of pictures AND videos of my kids to look at whenever I wanted.  AND I can check e-mail, compulsively check my blog for comments, listen to music, talk on the phone (imagine that using a cell phone for actual phone conversations) and even check the weather!  All this and I can carry it around in my pants pocket.  It's awesome!  Maybe I could even remove the useless calender function to leave more space for pictures :-).  Of course, my husband pointed out the fact that it costs more than an actual laptop.  hmm.....small detail I thought.... and THIS proves that I have become a gadget person.  We're in trouble!!!

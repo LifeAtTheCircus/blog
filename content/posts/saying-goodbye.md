@@ -1,0 +1,18 @@
++++
+title = "Saying Goodbye"
+date = 2010-02-14T20:53:00Z
+updated = 2015-05-11T21:46:02Z
+tags = ["family"]
+blogimport = true 
++++
+
+We knew this day was coming for awhile now.&#160; In fact, it got pushed back at least twice.&#160; But, sadly, the inevitable could not be avoided…after spending 10 weeks on the east coast, [aunt Karen and baby Eli](http://anotherstelladay.blogspot.com/) headed back to Texas this morning.&#160; 
+
+We have had a blast having them close for so long.&#160; It’s been so fun to “pretend” they were local and see them casually for dinners, or at church, or for an overnight every now and then.&#160;&#160; We’ve truly lived it up during our time together.&#160; We attended the parade of lights in downtown Annapolis, we took a road trip to visit our mutual blogging friend, [Happy](http://ahappyheart-rebecca.blogspot.com/), (4 kids and 2 moms on a 5 hr road trip…that was a slew of memories in and of itself), we had a girls night out, Scott and Karen relived their children and played numerous games of Dr Mario on her Wii, had an impromptu dance party, and played in the snow.&#160; She taught my son to play solitaire and she downloaded kid friendly apps to her smart phone for all of them to play.&#160;&#160; She cut the girls hair and sewed me a chair cover and just lived life with us for the past few months.&#160; She even shared some of [her precious Skype time](http://anotherstelladay.blogspot.com/2010/02/from-jim-with-love.html) so the kids could talk to Uncle Jim in Iraq.&#160; We had fun going to events together and fun just shopping at Target together.&#160; It confirmed to me all the more what I have known for years.&#160; Karen is more to me than just a sister in law.&#160; She is one of my best friends and I think of her truly as a sister.&#160;&#160; She is also one fantabulous aunt and I hope I can have the same kind of relationship that she has with my kids, with hers.&#160;&#160; [![aunt karen collage](https://latc.s3.amazonaws.com/wp-content/uploads/2010/02/auntkarencollage1.jpg "aunt karen collage")](https://latc.s3.amazonaws.com/wp-content/uploads/2010/02/auntkarencollage1.jpg) Then of course there is Eli.&#160; Eli is adored in our house.&#160; And for very good reason.&#160; He is such a cute, animated, happy, and content little baby.&#160; And we can’t get enough of him!&#160; When he enters the room there are always three very eager and attentive kids in his face, wanting to share toys, hugs, and love.&#160; And he puts up with it so well.&#160; They even made up a song for him during our 5 hr car ride.&#160; _“Eli, Eli, don’t you know your Eli.&#160; Eli, Eli, God Loves you.”_&#160; I’m sure it will be hit single shortly.&#160; It already is at the circus. 
+
+I have truly enjoyed watching him grow and change over the past few months and am so sad I will miss out on the subtle changes of his growing up, now that he is back home.&#160; 
+
+[![kids with Eli collage](https://latc.s3.amazonaws.com/wp-content/uploads/2010/02/kidswithElicollage.jpg "kids with Eli collage")](https://latc.s3.amazonaws.com/wp-content/uploads/2010/02/kidswithElicollage.jpg) Last night when I told the kids it was time to say good bye,       
+“like a long goodbye” to aunt Karen and Eli, no one wanted to.&#160; My youngest in all of her 2 yr old logic decided that if she just didn’t say goodbye than they wouldn’t leave.&#160; Sadly, that plan wasn’t all that sound and she finally gave them a sorrowful parting hug.&#160; 
+
+Thank you Aunt Karen and Eli for sharing life with us over the past few months.&#160; We have treasured our times together and are already eager for your return!&#160; Why does Texas have to be so far apart from MD?
