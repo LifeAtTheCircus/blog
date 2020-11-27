@@ -1,4 +1,4 @@
-baseURL = "LifeAtTheCircus.github.io/"
+baseURL = "LifeAtTheCircus.github.io"
 languageCode = "en-us"
 title = "Life At The Circus"
 theme = "mainroad"
