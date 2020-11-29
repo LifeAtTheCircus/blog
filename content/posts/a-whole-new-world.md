@@ -22,7 +22,9 @@ An hour or so later and they emerged…
 
 [![IMG_2836](https://latc.s3.amazonaws.com/wp-content/uploads/2011/06/IMG_2836.jpg "IMG_2836")](https://latc.s3.amazonaws.com/wp-content/uploads/2011/06/IMG_2836.jpg)
 
- bringing with them The 4 Thrones of Cair Paravel.[![IMG_2845](https://latc.s3.amazonaws.com/wp-content/uploads/2011/06/IMG_2845.jpg "IMG_2845")](https://latc.s3.amazonaws.com/wp-content/uploads/2011/06/IMG_2845.jpg)
+bringing with them The 4 Thrones of Cair Paravel.
+ 
+[![IMG_2845](https://latc.s3.amazonaws.com/wp-content/uploads/2011/06/IMG_2845.jpg "IMG_2845")](https://latc.s3.amazonaws.com/wp-content/uploads/2011/06/IMG_2845.jpg)
 
 I told them I wanted to take a picture and they said _they wanted_ me to take a picture so they could send it into [Lego Magazine](http://club1.lego.com/en-US/subscription/default.aspx?SkuId=9052b50e-271e-46d2-9abb-e1950f8cc438&amp;step=1&amp;CountryId=US).&#160; 
 

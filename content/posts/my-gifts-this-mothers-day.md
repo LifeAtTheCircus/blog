@@ -20,9 +20,7 @@ The manner in which he can turn everything, EVERY-SINGLE-THING into something St
 
 her total and complete love for her big brother… I do believe she’d follow him to the end of the earth and back…
 
-[
-
-![IMG_6925](https://latc.s3.amazonaws.com/wp-content/uploads/2011/05/IMG_6925.jpg "IMG_6925")](https://latc.s3.amazonaws.com/wp-content/uploads/2011/05/IMG_6925.jpg)
+[![IMG_6925](https://latc.s3.amazonaws.com/wp-content/uploads/2011/05/IMG_6925.jpg "IMG_6925")](https://latc.s3.amazonaws.com/wp-content/uploads/2011/05/IMG_6925.jpg)
 
 her cartoon character like voice…
 

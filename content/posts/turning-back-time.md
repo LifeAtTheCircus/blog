@@ -16,8 +16,12 @@ Our littlest crew member turned one earlier this month.&#160; Not sure how that 
 
 [![IMG_2618](https://latc.s3.amazonaws.com/wp-content/uploads/2011/06/IMG_2618.jpg "IMG_2618")](https://latc.s3.amazonaws.com/wp-content/uploads/2011/06/IMG_2618.jpg)
 
-However, we didn’t celebrate his birthday until this past weekend.&#160; So, in a way… we froze time for a little longer.&#160; [![IMG_2705](https://latc.s3.amazonaws.com/wp-content/uploads/2011/06/IMG_2705.jpg "IMG_2705")](https://latc.s3.amazonaws.com/wp-content/uploads/2011/06/IMG_2705.jpg)
+However, we didn’t celebrate his birthday until this past weekend.&#160; So, in a way… we froze time for a little longer.&#160; 
 
-But, now that his scrapbook and video are both finished (circus family 1st birthday traditions), and he’s had that first bite of cake, there really is no denying it…[![IMG_2755](https://latc.s3.amazonaws.com/wp-content/uploads/2011/06/IMG_2755.jpg "IMG_2755")](https://latc.s3.amazonaws.com/wp-content/uploads/2011/06/IMG_2755.jpg)
+[![IMG_2705](https://latc.s3.amazonaws.com/wp-content/uploads/2011/06/IMG_2705.jpg "IMG_2705")](https://latc.s3.amazonaws.com/wp-content/uploads/2011/06/IMG_2705.jpg)
+
+But, now that his scrapbook and video are both finished (circus family 1st birthday traditions), and he’s had that first bite of cake, there really is no denying it…
+
+[![IMG_2755](https://latc.s3.amazonaws.com/wp-content/uploads/2011/06/IMG_2755.jpg "IMG_2755")](https://latc.s3.amazonaws.com/wp-content/uploads/2011/06/IMG_2755.jpg)
 
 The Circus Baby is one.&#160; 

@@ -8,13 +8,14 @@ blogimport = true
 
 
 When my son was 3, I took him strawberry picking for the first time. It was a special Mommy/Son date prior to the birth of our third child.
-[
 
-![IMG_1690](https://latc.s3.amazonaws.com/wp-content/uploads/2011/05/IMG_1690.jpg "IMG_1690")](https://latc.s3.amazonaws.com/wp-content/uploads/2011/05/IMG_1690.jpg)
+[![IMG_1690](https://latc.s3.amazonaws.com/wp-content/uploads/2011/05/IMG_1690.jpg "IMG_1690")](https://latc.s3.amazonaws.com/wp-content/uploads/2011/05/IMG_1690.jpg)
 
+The next year, we returned, but this time it was a family affair.
 
-&#160;
-The next year, we returned, but this time it was a family affair.[![strawberries 046](https://latc.s3.amazonaws.com/wp-content/uploads/2011/05/strawberries-046.jpg "strawberries 046")](https://latc.s3.amazonaws.com/wp-content/uploads/2011/05/strawberries-046.jpg)[![strawberries 049](https://latc.s3.amazonaws.com/wp-content/uploads/2011/05/strawberries-049.jpg "strawberries 049")](https://latc.s3.amazonaws.com/wp-content/uploads/2011/05/strawberries-049.jpg)
+[![strawberries 046](https://latc.s3.amazonaws.com/wp-content/uploads/2011/05/strawberries-046.jpg "strawberries 046")](https://latc.s3.amazonaws.com/wp-content/uploads/2011/05/strawberries-046.jpg)
+
+[![strawberries 049](https://latc.s3.amazonaws.com/wp-content/uploads/2011/05/strawberries-049.jpg "strawberries 049")](https://latc.s3.amazonaws.com/wp-content/uploads/2011/05/strawberries-049.jpg)
 
 2009 brought us back to the same farm, this time with friends.
 

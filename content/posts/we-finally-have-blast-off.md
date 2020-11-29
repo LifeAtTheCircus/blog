@@ -24,7 +24,11 @@ This is the site that greeted us across the Indian River.&#160; It was so cool t
 
 [![IMG_4133](https://latc.s3.amazonaws.com/wp-content/uploads/2011/07/IMG_4133.jpg "IMG_4133")](https://latc.s3.amazonaws.com/wp-content/uploads/2011/07/IMG_4133.jpg)
 
-Then we set out to wait 7 hrs hoping the launch would go off.&#160; The weather [![IMG_4148](https://latc.s3.amazonaws.com/wp-content/uploads/2011/07/IMG_4148.jpg "IMG_4148")](https://latc.s3.amazonaws.com/wp-content/uploads/2011/07/IMG_4148.jpg)forecast wasn’t good and we were due to get rained on as we waited.&#160; Praise God the rain never came but even at 8am, they were only giving a 30% chance of favorable weather for lift off.&#160;&#160; We waited, napped, colored, snacked, snuggled, and waited some more.&#160;&#160; I was greatly encouraged by the face book comments I kept getting on my phone with people telling me they were praying those clouds away and hoping for a lift off.&#160; 
+Then we set out to wait 7 hrs hoping the launch would go off.&#160; The weather 
+
+[![IMG_4148](https://latc.s3.amazonaws.com/wp-content/uploads/2011/07/IMG_4148.jpg "IMG_4148")](https://latc.s3.amazonaws.com/wp-content/uploads/2011/07/IMG_4148.jpg)
+
+forecast wasn’t good and we were due to get rained on as we waited.&#160; Praise God the rain never came but even at 8am, they were only giving a 30% chance of favorable weather for lift off.&#160;&#160; We waited, napped, colored, snacked, snuggled, and waited some more.&#160;&#160; I was greatly encouraged by the face book comments I kept getting on my phone with people telling me they were praying those clouds away and hoping for a lift off.&#160; 
 
 By 11am, excitement was mounding.&#160; People were getting on their feet, we were making sure we had visual.&#160; Someone brought a radio and broadcasted the countdown.&#160; “Please, oh please, let it go off,” Scott and I kept pleading inside.&#160; We were hoping against hope that it would go off because 1. we really wanted to see it and 2.&#160; we couldn’t imagine the thought of pulling another all nighter with the kids right after this one.&#160; They really were amazing but every kids has a limit (and so do parents).
 

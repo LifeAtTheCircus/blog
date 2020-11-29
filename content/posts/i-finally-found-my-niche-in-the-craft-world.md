@@ -12,7 +12,9 @@ But, I think I may have stumbled across a medium which I can do, and do with con
 
 hot glue
 
-Don’t worry, I have no aspirations of hot gluing their pajama pants or anything like that, but I did however make 3 of these this week. [![IMG_6188](https://latc.s3.amazonaws.com/wp-content/uploads/2011/09/IMG_6188.jpg "IMG_6188")](https://latc.s3.amazonaws.com/wp-content/uploads/2011/09/IMG_6188.jpg)
+Don’t worry, I have no aspirations of hot gluing their pajama pants or anything like that, but I did however make 3 of these this week. 
+
+[![IMG_6188](https://latc.s3.amazonaws.com/wp-content/uploads/2011/09/IMG_6188.jpg "IMG_6188")](https://latc.s3.amazonaws.com/wp-content/uploads/2011/09/IMG_6188.jpg)
 
 When I stumbled across a picture of one of these on pinterest _(don’t ask too many questions, I don’t fully understand it and def don’t utilize it fully, but I have seen some cute ideas on there),_ I instantly fell in love with it. 
 

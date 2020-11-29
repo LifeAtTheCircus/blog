@@ -24,7 +24,9 @@ A few days later we got to experience a hurricane… again we were spared any tr
 
 As the storm raged in the middle of the night I found myself wondering “What would a worse hurricane feel like?”&#160; And I was crying out to God to please protect our house from the huge trees surrounding it.&#160; As I prayed I couldn’t help but think of how mighty and powerful our God is.&#160; He created the wind.&#160; His voice alone can stop the wind.&#160; What power He has in his hands!&#160;&#160; 
 
-Sunday morning found our yard littered with branches and leaves, but thankfully our house and property were safe.&#160; [![IMG_5619](https://latc.s3.amazonaws.com/wp-content/uploads/2011/09/IMG_5619.jpg "IMG_5619")](https://latc.s3.amazonaws.com/wp-content/uploads/2011/09/IMG_5619.jpg)
+Sunday morning found our yard littered with branches and leaves, but thankfully our house and property were safe.&#160; 
+
+[![IMG_5619](https://latc.s3.amazonaws.com/wp-content/uploads/2011/09/IMG_5619.jpg "IMG_5619")](https://latc.s3.amazonaws.com/wp-content/uploads/2011/09/IMG_5619.jpg)
 
 There were trees on our very street which fell during the storm.&#160; 
 

@@ -25,11 +25,7 @@ As far as our planning is concerned, this little man will be our last baby. And 
 I have savored his first year. I love how easily he smiles. I love the way he waves his hands in the air and exclaims with glee when I'm getting ready to feed him. I love that he is my snuggle bug, often falling asleep in my arms at gymnastics or practice.&#160; I love the way his eyes light up when he sees his sisters or brother walk in the room. I love the way he crawls to the gate and says, “Da Da” when Scott comes home from work. I love how he claps his hands and yells a loud grunt when he's at one of his siblings games.&#160; He's the best little cheer leader/encourager!
 
 His laugh, which comes so freely, truly warms your heart and one can't help but smile when he calls out to you and flashes one of his smiles.
-  
 
-[![image](http://pic.photobucket.com/slideshows/btn.gif)](http://photobucket.com/slideshows)[![image](http://pic.photobucket.com/slideshows/btn_viewallimages.gif)](http://s282.photobucket.com/albums/kk261/LifeAtTheCircus/?action=view&amp;current=3074d1f0.pbw)
- 
-
-
-  
+https://photos.app.goo.gl/WNVEMirJsbu9oocx7
+   
 We're waiting till later this month to celebrate his first birthday, but I can't help but pause this week and reflect on the gift of joy that God has given our family through this precious lil guy.

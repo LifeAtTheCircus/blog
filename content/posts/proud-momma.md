@@ -6,7 +6,9 @@ tags = ["sports", "gymnastics", "sisters"]
 blogimport = true 
 +++
 
-[![IMG_1884](https://latc.s3.amazonaws.com/wp-content/uploads/2011/06/IMG_1884.jpg "IMG_1884")](https://latc.s3.amazonaws.com/wp-content/uploads/2011/06/IMG_1884.jpg)My girls had their Mini Olympics Show yesterday afternoon and I gotta tell you, I was one proud Momma as I watched them perform.&#160;&#160; 
+[![IMG_1884](https://latc.s3.amazonaws.com/wp-content/uploads/2011/06/IMG_1884.jpg "IMG_1884")](https://latc.s3.amazonaws.com/wp-content/uploads/2011/06/IMG_1884.jpg)
+
+My girls had their Mini Olympics Show yesterday afternoon and I gotta tell you, I was one proud Momma as I watched them perform.&#160;&#160; 
 
 Their class did a floor routine (which was super cute to watch) and then each girl had a chance to perform on the bars, trampoline, and tumble track.&#160;&#160; 
 

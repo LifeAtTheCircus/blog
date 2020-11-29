@@ -22,7 +22,7 @@ After getting a chance to hold the monkeys, we set off for the beach.
 
 [![20170726_133558](https://lh3.googleusercontent.com/-9-s-65RrP78/WZT7WOrsBQI/AAAAAAAACgA/H-TWeMACMLYOAn4lpcv2S_R2VBexr9ceQCHMYCw/20170726_1335585?imgmax=800 "20170726_133558")](https://lh3.googleusercontent.com/-9TCodcSscUI/WZT7WF7EHRI/AAAAAAAACf8/wFuZHMNNRJQP6vj71mWI1ueXUE97tPGLACHMYCw/s1600-h/20170726_1335587)[![20170726_124709](https://lh3.googleusercontent.com/-EMBynztPmvI/WZT7Wg0KM0I/AAAAAAAACgI/y-4oXQoaG24LwnDEtL3PdQLFZoiXR_ZAwCHMYCw/20170726_1247092?imgmax=800 "20170726_124709")](https://lh3.googleusercontent.com/-sMWs0ssi494/WZT7WRC7UdI/AAAAAAAACgE/Vgh5C5Mw2DI0aDDotfzpUuOMGjW04gWcwCHMYCw/s1600-h/20170726_1247094)
 
-[![20170726_111818](https://lh3.googleusercontent.com/-Ai89fL5_gg8/WZT7XPjME1I/AAAAAAAACgQ/KhmkDh4wEfotWomyahfzcuPRWO7-CRKqwCHMYCw/20170726_1118188?imgmax=800 "20170726_111818")](https://lh3.googleusercontent.com/-eSsQ4chzRR4/WZT7W8ArD_I/AAAAAAAACgM/8WBILQMtjAscirxvB9guIJllsIiUkq9cgCHMYCw/s1600-h/20170726_1118184)
+[![20170726_111818](https://lh3.googleusercontent.com/-eSsQ4chzRR4/WZT7W8ArD_I/AAAAAAAACgM/8WBILQMtjAscirxvB9guIJllsIiUkq9cgCHMYCw/?imgmax=800 "20170726_111818")](https://lh3.googleusercontent.com/-eSsQ4chzRR4/WZT7W8ArD_I/AAAAAAAACgM/8WBILQMtjAscirxvB9guIJllsIiUkq9cgCHMYCw/s1600-h/)
 
 Here we enjoyed several hours of sand, sun, swimming, sea shells, and snorkeling.
 

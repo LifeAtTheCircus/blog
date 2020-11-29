@@ -24,6 +24,4 @@ A few pics of life around here this week…
 
 [![photo](https://latc.s3.amazonaws.com/wp-content/uploads/2011/11/photo.jpg "photo")](https://latc.s3.amazonaws.com/wp-content/uploads/2011/11/photo.jpg)
 
-&#160;
-
 [![IMG_7994](https://latc.s3.amazonaws.com/wp-content/uploads/2011/11/IMG_7994.jpg "IMG_7994")](https://latc.s3.amazonaws.com/wp-content/uploads/2011/11/IMG_7994.jpg)
